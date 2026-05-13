@@ -1,4 +1,4 @@
-#  
+#  Alfred for macOS professional Workflow - quick search and AI assistant offers the most advanced Alfred for macOS workflow, with quick search and AI assistant. Ideal for
 
 
 
